@@ -121,7 +121,7 @@ For any queries or suggestions, feel free to contact:
 
 - **Name**: Neha Bajjuri
 - **GitHub**: [NehaBajjuri](https://github.com/NehaBajjuri)
-- **Email**: [your-email@example.com](mailto\:your-email@example.com)
+- **Email**: [nehabajjuri244@gmail.com](nehabajjuri244@gmail.com)
 
 ---
 
